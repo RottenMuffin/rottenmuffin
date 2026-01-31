@@ -15,3 +15,15 @@
  <div align="center"> write anything you want here </div>
 ㅤ
 <H6> <p align="center""> profile picture by @laikoski_ on twitter </p>
+
+He/him Male
+Call me Ezra/Muffin !
+
+DNI : proshippers,darkshippers,homophobic,transphobic,xenophobic people,people who force religion or dont respect lgbtq because of it,Megan,Saber,Bonbon,Himiko,Endeavorhawks
+
+INT : 
+Togachako,Bkdk,Izuocha,Kamijiro,Kirimina,Erasermic,random C+H is okay too ^^
+
+Boundaries :
+
+Do not commemt on my voice or appearance nor call me femboy or twink.
