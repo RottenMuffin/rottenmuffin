@@ -18,6 +18,6 @@ DNI : proshippers, darkshippers, homophobic ,transphobic, xenophobic people, peo
 
 INT : Togachako, Bkdk, Izuocha, Kamijiro, Kirimina, Erasermic, random C+H is okay too ^^
 
-Boundaries : Do not comment on my voice or appearance nor call me femboy or twink. </div>
+Boundaries : Do not comment negatively on my voice or appearance nor call me femboy or twink. </div>
 ㅤ
 <H6> <p align="center""> profile picture by @laikoski_ on twitter </p>
