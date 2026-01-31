@@ -26,4 +26,4 @@ Togachako,Bkdk,Izuocha,Kamijiro,Kirimina,Erasermic,random C+H is okay too ^^
 
 Boundaries :
 
-Do not commemt on my voice or appearance nor call me femboy or twink.
+Do not commemt negatively on my voice or appearance nor call me femboy or twink.
