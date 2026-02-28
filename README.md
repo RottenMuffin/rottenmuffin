@@ -14,7 +14,7 @@
 
  <div align="center"> He/him, Male, Call me <b>Ez</b>ra/<b>Muf</b>fin !
 
-DNI : proshippers, darkshippers, homophobic ,transphobic, xenophobic people, people who force religion or dont respect lgbtq because of it, Megan, Saber, Bonbon, Himiko, Endeavorhawks
+DNI : proshippers, darkshippers, homophobic ,transphobic, xenophobic people, people who force religion or dont respect lgbtq because of it, Megan, Saber, Bonbon, Himiko, Endeavorhawks,Yarichin bitch club(even if you just "like the characters designs")
 
 INT : Togachako, Bkdk, Izuocha, Kamijiro, Kirimina, Erasermic, random C+H is okay too ^^
 
